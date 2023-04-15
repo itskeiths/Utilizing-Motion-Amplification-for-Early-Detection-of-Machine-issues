@@ -1,0 +1,1 @@
+# Utilizing-Motion-Amplification-for-Early-Detection-of-Machine-issues
